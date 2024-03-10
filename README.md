@@ -10,7 +10,7 @@ Nutrient Finder Windows and Macos Desktop Versions are Ready
 
 Hi All,
 
-Nutrient Finder Windows and Macos Desktop Versions are Ready.
+Nutrient Finder Windows and macOS Desktop Versions are Ready.
 
 You can download them from below link.
 
